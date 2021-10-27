@@ -12,7 +12,7 @@ Assiahmad525@gmail.com 79169402 mina, tripoli, lebanon
 
 ## TS informatics
 
-## AUC
+## AUCcc
 
 ```
 2019 ,
